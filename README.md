@@ -3,4 +3,4 @@
 
 Hello Everyone! 
 
-I am just someone who is bored and wanting to learn!
+I'm just someone who is bored and wanting to learn!
